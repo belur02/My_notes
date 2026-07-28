@@ -1,0 +1,1 @@
+[[Daily Target]] 27000
